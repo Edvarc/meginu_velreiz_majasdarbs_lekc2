@@ -1,0 +1,1 @@
+# meginu_velreiz_majasdarbs_lekc2
